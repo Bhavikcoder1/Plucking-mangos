@@ -1,1 +1,1 @@
-https://suwarna-cloud.github.io/Plucking-mangoes/index.html
+https://bhavikcoder1.github.io/Plucking-mangos/
